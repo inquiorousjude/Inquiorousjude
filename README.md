@@ -51,4 +51,13 @@ FYI : *READ STRAW BEFORE INT!*
 
 
 
+[☆. (EW THEMED)](https://saiiharas.straw.page)
+
+[♤](https://www.roblox.com/users/1292459020/profile)
+
+[♡](https://constellat1ons.atabook.org/) - sign ata
+
+<img width="102" height="102" alt="1000035855" src="https://github.com/user-attachments/assets/3d832abc-382b-423e-bac7-1b9c92d474f1" />
+
+<img width="1280" height="200" alt="1000035843" src="https://github.com/user-attachments/assets/41f38448-9a7d-4091-b1b7-04d4fbcc49ae" />
 
