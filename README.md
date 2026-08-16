@@ -32,10 +32,12 @@
 
 **FYI: 👀 > (Yes I liked jude since his debut I'm just more open about it , I also like yamal, neymar, cubarsi)**
 
-<img width="1108" height="1108" alt="1000035855" src="https://github.com/user-attachments/assets/508f0105-23f0-4040-abdf-d9f613984049" />
 
+ **꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷ ☆ —**
 
-<img width="1280" height="86" alt="1000035844" src="https://github.com/user-attachments/assets/3ec0bdfc-1bc7-4063-9264-8633d4b5d710" />
+ 
+
+<<img width="1280" height="86" alt="1000035844" src="https://github.com/user-attachments/assets/3ec0bdfc-1bc7-4063-9264-8633d4b5d710" />
 
 
 
@@ -44,10 +46,9 @@
 
 
 
+FYI : *READ STRAW BEFORE INT!*
 
 
-
-<img width="554" height="554" alt="1000035846" src="https://github.com/user-attachments/assets/52951bd7-8491-4c33-9333-67c5237ffd0f" />
 
 
 
