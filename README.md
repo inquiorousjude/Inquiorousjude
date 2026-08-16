@@ -1,39 +1,53 @@
-hi it's sai, but now I'm into fifa, Eddsworld,  hetalia, etc (Yes I'm still into jjk)
-
-👀 > (Yes I liked jude since his debut I'm just more open about it , I also like yamal, neymar, cubarsi)
+<img width="1280" height="200" alt="1000035842" src="https://github.com/user-attachments/assets/4d2800b3-315e-4916-b972-42e55c2d9cbd" />
 
 
 
-
-
-> @haibarasway ⭐: - ' ' Im all fired up! I wanna show geto what I got! ' '
-
+<img width="86" height="15" alt="1000035847" src="https://github.com/user-attachments/assets/88e980d0-db77-4c81-9826-d66d51f9b34e" />  <img width="86" height="15" alt="1000035850" src="https://github.com/user-attachments/assets/38ae6e18-392a-4e6c-9ab1-8183fa8de8ab" /> <img width="86" height="15" alt="1000035849" src="https://github.com/user-attachments/assets/7ddbc25d-8b24-4352-b6d6-d4f4719bb970" /> <img width="86" height="15" alt="1000035848" src="https://github.com/user-attachments/assets/70e09dc0-0056-463c-9bcf-835d28786169" />
 
 
 
-> @inquiorousjude ⭐: - ' 'Chopstick challenge,  chopstick challenge chopstick challenge!' '
-
-![gang](https://cdn.discordapp.com/attachments/1512536514754777221/1535602138036838400/images_f3b5c8eb-19b2-42.jpg?ex=6a785c6f&is=6a770aef&hm=7e67264da19ab9c03258d9b1bf8a8f1b73de1ae6e2368d1d6b78939187557c09&)
+ <img width="88" height="31" alt="1000035853" src="https://github.com/user-attachments/assets/b7da83fe-85f5-46aa-a04f-7e516d3524bc" />
 
 
 
-[straw](https://saiiharas.straw.page) eddsworld themed
-
-[atabook](https://constellat1ons.atabook.org/)
+<img width="1280" height="300" alt="1000035845" src="https://github.com/user-attachments/assets/df70b9e6-5f8e-454c-9e21-8797aef8d458" />
 
 
+. ☆ **> @haibarasway ⭐: - ' ' Im all fired up! I wanna show geto what I got! ' '**
 
-<!--
-**inquiorousjude/Inquiorousjude** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+> ☆ *@inquiorousjude ⭐: - ' 'Chopstick challenge,  chopstick challenge chopstick challenge!' '*
+
+
+ ☆  *sai*
+
+**He/they**      **16 yrs**
+
+<img width="20" height="20" alt="1000035851" src="https://github.com/user-attachments/assets/9fe99905-e6c5-4b49-bafb-104c9f64a966" /> <img width="20" height="20" alt="1000035852" src="https://github.com/user-attachments/assets/037692ec-4b12-4e94-8167-c53efeef973d" />
+
+
+ > things of interest: fifa, Eddsworld,  hetalia, satw, tyler the creator etc. (Yes I'm still into jjk)
+
+**FYI: 👀 > (Yes I liked jude since his debut I'm just more open about it , I also like yamal, neymar, cubarsi)**
+
+<img width="1108" height="1108" alt="1000035855" src="https://github.com/user-attachments/assets/508f0105-23f0-4040-abdf-d9f613984049" />
+
+
+<img width="1280" height="86" alt="1000035844" src="https://github.com/user-attachments/assets/3ec0bdfc-1bc7-4063-9264-8633d4b5d710" />
+
+
+
+
+**_MORE INFO AND SOCIALS!_**
+
+
+
+
+
+
+<img width="554" height="554" alt="1000035846" src="https://github.com/user-attachments/assets/52951bd7-8491-4c33-9333-67c5237ffd0f" />
+
+
+
