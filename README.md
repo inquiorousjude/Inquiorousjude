@@ -52,3 +52,6 @@
 
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=2000&pause=1000&color=8F929ADF&width=435&lines=Tall%2C+and+tan;and+young%2C+and+lovely;The+guy+from+carolina+goes+walking+;But+when+he+passes;they+smile%2C+but+they+do+not+see!)](https://git.io/typing-svg)
+
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31kesvv5wd43jtoc3rjnlj6md7gy&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile)
