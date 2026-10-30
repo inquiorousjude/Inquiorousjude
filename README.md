@@ -1,4 +1,3 @@
-<img width="1280" height="200" alt="1000035842" src="https://github.com/user-attachments/assets/4d2800b3-315e-4916-b972-42e55c2d9cbd" />
 
 
 
@@ -6,11 +5,10 @@
 
 
 
- <img width="88" height="31" alt="1000035853" src="https://github.com/user-attachments/assets/b7da83fe-85f5-46aa-a04f-7e516d3524bc" />
+ 
 
 
 
-<img width="1280" height="300" alt="1000035845" src="https://github.com/user-attachments/assets/df70b9e6-5f8e-454c-9e21-8797aef8d458" />
 
 
 . ☆ **> @haibarasway ⭐: - ' ' Im all fired up! I wanna show geto what I got! ' '**
@@ -21,28 +19,27 @@
 > ☆ *@inquiorousjude ⭐: - ' 'Chopstick challenge,  chopstick challenge chopstick challenge!' '*
 
 
+<img width="736" height="736" alt="1000001892" src="https://github.com/user-attachments/assets/2ee19403-7650-41db-a280-4f0381674d5f" />
+
+
  ☆  *sai*
 
 **He/they**      **16 yrs**
 
-<img width="20" height="20" alt="1000035851" src="https://github.com/user-attachments/assets/9fe99905-e6c5-4b49-bafb-104c9f64a966" /> <img width="20" height="20" alt="1000035852" src="https://github.com/user-attachments/assets/037692ec-4b12-4e94-8167-c53efeef973d" />
-
 
  > things of interest: fifa, Eddsworld,  hetalia, satw, tyler the creator etc. (Yes I'm still into jjk)
 
-**FYI: 👀 > (Yes I liked jude since his debut I'm just more open about it , I also like yamal, neymar, cubarsi)**
+> FYI: 👀 > (Yes I liked jude since his debut I'm just more open about it. I also liked Neymar for a minute. I also like doué, yamal, cubarsi)**
 
 
  **꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷ ☆ —**
 
  
 
-<<img width="1280" height="86" alt="1000035844" src="https://github.com/user-attachments/assets/3ec0bdfc-1bc7-4063-9264-8633d4b5d710" />
+<img width="702" height="740" alt="1000001890" src="https://github.com/user-attachments/assets/03196cb7-6bf2-4715-917f-e689fadeb966" />
 
 
 
-
-**_MORE INFO AND SOCIALS!_**
 
 
 
@@ -51,19 +48,7 @@ FYI : *READ STRAW BEFORE INT!*
 
 
 
-[☆. (EW THEMED)](https://saiiharas.straw.page)
-
-[♤](https://www.roblox.com/users/1292459020/profile)
-
-[♡](https://constellat1ons.atabook.org/) - sign ata
-
-.[×](https://en.pronouns.page/@Inquiriousjudexx) - the nouns
+[strawpg](https://saiiharas.straw.page),, [rblx](https://www.roblox.com/users/1292459020/profile) ,, [atabook](https://constellat1ons.atabook.org/).,, [pronouns](https://en.pronouns.page/@Inquiriousjudexx) ,,[gunslol](https://guns.lol/inquiriousney.)
 
 
-[+](https://guns.lol/inquiriousney.) - gunslol
-
-
-<img width="102" height="102" alt="1000035855" src="https://github.com/user-attachments/assets/3d832abc-382b-423e-bac7-1b9c92d474f1" />
-
-<img width="1280" height="200" alt="1000035843" src="https://github.com/user-attachments/assets/41f38448-9a7d-4091-b1b7-04d4fbcc49ae" />
-
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=2000&pause=1000&color=8F929ADF&width=435&lines=Tall%2C+and+tan;and+young%2C+and+lovely;The+guy+from+carolina+goes+walking+;But+when+he+passes;they+smile%2C+but+they+do+not+see!)](https://git.io/typing-svg)
