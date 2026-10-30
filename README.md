@@ -51,7 +51,6 @@
 [strawpg](https://saiiharas.straw.page),, [rblx](https://www.roblox.com/users/1292459020/profile) ,, [atabook](https://constellat1ons.atabook.org/).,, [pronouns](https://en.pronouns.page/@Inquiriousjudexx) ,,[gunslol](https://guns.lol/inquiriousney.) ,, [numero2](https://github.com/neybappes)
 
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=2000&pause=1000&color=8F929ADF&width=435&lines=Tall%2C+and+tan;and+young%2C+and+lovely;The+guy+from+carolina+goes+walking+;But+when+he+passes;they+smile%2C+but+they+do+not+see!)](https://git.io/typing-svg)
-
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Times+New+Roman&duration=2000&pause=1000&color=9E9E9E&width=435&lines=%22he+looks+straight+ahead;not+at+them!;tall%2C+and+tan%2C+and;young+and+lovely;the+guy+from+carolina+goes+walking!;but+when+he+passes;they+smile%2C;but+they+do+not+see!%22)](https://git.io/typing-svg)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31kesvv5wd43jtoc3rjnlj6md7gy&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile)
