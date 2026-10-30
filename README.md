@@ -11,7 +11,7 @@
 
 
 
-. ☆ **> @haibarasway ⭐: - ' ' Im all fired up! I wanna show geto what I got! ' '**
+. ☆ *> @haibarasway ⭐: - ' ' Im all fired up! I wanna show geto what I got! ' '*
 
 
 
@@ -48,7 +48,7 @@ FYI : *READ STRAW BEFORE INT!*
 
 
 
-[strawpg](https://saiiharas.straw.page),, [rblx](https://www.roblox.com/users/1292459020/profile) ,, [atabook](https://constellat1ons.atabook.org/).,, [pronouns](https://en.pronouns.page/@Inquiriousjudexx) ,,[gunslol](https://guns.lol/inquiriousney.)
+[strawpg](https://saiiharas.straw.page),, [rblx](https://www.roblox.com/users/1292459020/profile) ,, [atabook](https://constellat1ons.atabook.org/).,, [pronouns](https://en.pronouns.page/@Inquiriousjudexx) ,,[gunslol](https://guns.lol/inquiriousney.) ,, [numero2](https://github.com/neybappes)
 
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=2000&pause=1000&color=8F929ADF&width=435&lines=Tall%2C+and+tan;and+young%2C+and+lovely;The+guy+from+carolina+goes+walking+;But+when+he+passes;they+smile%2C+but+they+do+not+see!)](https://git.io/typing-svg)
