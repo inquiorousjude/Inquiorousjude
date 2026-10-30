@@ -17,11 +17,11 @@
 
 
 <details>
-  <summary><b></b>Click me</b></summary>
+  <summary><b></b>𝓒𝓵𝓲𝓬𝓴 𝓶𝓮</b></summary>
   <br>
   > things of interest: fifa, Eddsworld,  hetalia, satw, tyler the creator etc. (Yes I'm still into jjk)
 
-> FYI: 👀 > (Yes I liked jude since his debut I'm just more open about it. I also liked Neymar for a minute. I also like doué, yamal, cubarsi)**
+> FYI: 👀 > (Yes I liked jude since his debut I'm just more open about it. I also liked Neymar for a minute. I also like doué, yamal, cubarsi)
 </details>
 
 
