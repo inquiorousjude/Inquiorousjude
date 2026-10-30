@@ -1,30 +1,19 @@
 
 
-
-<img width="86" height="15" alt="1000035847" src="https://github.com/user-attachments/assets/88e980d0-db77-4c81-9826-d66d51f9b34e" />  <img width="86" height="15" alt="1000035850" src="https://github.com/user-attachments/assets/38ae6e18-392a-4e6c-9ab1-8183fa8de8ab" /> <img width="86" height="15" alt="1000035849" src="https://github.com/user-attachments/assets/7ddbc25d-8b24-4352-b6d6-d4f4719bb970" /> <img width="86" height="15" alt="1000035848" src="https://github.com/user-attachments/assets/70e09dc0-0056-463c-9bcf-835d28786169" />
-
-
-
- 
-
-
-
-
-
-> ☆ *> @haibarasway ⭐: - ' ' Im all fired up! I wanna show geto what I got! ' '*
-
-
-
-
 > ☆ *@inquiorousjude ⭐: - ' 'Chopstick challenge,  chopstick challenge chopstick challenge!' '*
 
 
 <img width="736" height="736" alt="1000001892" src="https://github.com/user-attachments/assets/2ee19403-7650-41db-a280-4f0381674d5f" />
 
 
- ☆  *sai*
+𝓢𝓪𝓲
 
-**He/they**      **16 yrs**
+
+𝓗𝓮/𝓣𝓱𝓮𝔂. 
+
+
+04/14/2010. -  #𝓒𝓞28
+
 
 
  > things of interest: fifa, Eddsworld,  hetalia, satw, tyler the creator etc. (Yes I'm still into jjk)
