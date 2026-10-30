@@ -11,7 +11,7 @@
 
 
 
-. ☆ *> @haibarasway ⭐: - ' ' Im all fired up! I wanna show geto what I got! ' '*
+> ☆ *> @haibarasway ⭐: - ' ' Im all fired up! I wanna show geto what I got! ' '*
 
 
 
@@ -43,7 +43,7 @@
 
 
 
-FYI : *READ STRAW BEFORE INT!*
+> FYI : *READ STRAW BEFORE INT!*
 
 
 
